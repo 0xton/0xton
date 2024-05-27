@@ -1,1 +1,3 @@
-Within the shadows lies the keeper of secrets.
+Curdle your ambitions, stabilize your path
+
+Just as you have always been doing
